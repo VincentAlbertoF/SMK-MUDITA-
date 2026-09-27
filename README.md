@@ -1,2 +1,0 @@
-# SMK-MUDITA-
-Web SMK MUDITA
